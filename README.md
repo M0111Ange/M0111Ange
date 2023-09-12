@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @M0111Ange
+- 👀 I’m interested in improving the software used in hospitals and clinics
+- 🌱 I’m currently learning software engineering at ALU 
+- 💞️ I’m looking to collaborate on how software can be improved in hospitals and medical domain in general 
+- 📫 How to reach me: Whatsapp and mobile number: +250786160692 Email address: angemukundente@gmail.com. Linkedin:Ange Mukundente
